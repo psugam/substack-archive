@@ -294,7 +294,7 @@ druhaṃ vi vṛha devā’smad ṛtaṃ no hṛdam ā viśāt ॥01॥
 ṛteno’deti sūryo’han ṛtaṃ no hṛdam ā viśāt ॥03॥
 
 ṛta indra ṛte mitro yuṅktād ṛte nŏ aryamā
-ṛte pathi carantaṃ saṃ mā dhrug vikṣad manāṃsi naḥ  ॥04॥
+ṛte pathi caranto' dha mā dhrug vikṣad manāṃsi naḥ  ॥04॥
 ```
 
 #### Translation
